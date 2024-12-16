@@ -1,0 +1,1 @@
+Hi, I’m Lj Cyr, a game developer and a graduating student of BS Entertainment and Multimedia Computing, majoring in Game Development, from University of the East Manila. I love making fun and exciting games that people enjoy. Check out my portfolio and projects to see my work!
